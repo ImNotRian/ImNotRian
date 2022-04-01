@@ -1,5 +1,5 @@
 - I’m @ImNotRian
-- interested in programming and codes
+- I am interested in gaining experience and inspiration
 - currently learning Analysis and systems development
 - looking to collaborate with knowledge that I will acquire
  
